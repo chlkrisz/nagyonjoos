@@ -1,2 +1,2 @@
-# nagyonjoos
+# nagyon jo os
 megölöm magam
