@@ -1,0 +1,2 @@
+# nagyonjoos
+megölöm magam
